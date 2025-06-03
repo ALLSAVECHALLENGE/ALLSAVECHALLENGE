@@ -4,8 +4,16 @@
 ![tumblr_06d3a2b9db774a3f5fa24289982da8f2_af0d4f62_75](https://github.com/user-attachments/assets/20ffe4c1-bff2-4429-b1ac-2db9cb206535)
 *IM GONNA CAST A MAGIC SPELL ON YA!!!!!!!!*
 
-._( ๑^ᵕ^๑)⸝' ✩ ♪ ⁠｡⁠*ﾟ⁠+
-          . ₊ ⊹ . ₊ ’♪*
+ㅤ∧＿∧
+
+（𓂂︲⩊︲𓂂)つ━♡・*。
+
+⊂　　 　ノ 　　　・゜+. 
+
+ㅤしーＪ　　　°。+ *´¨)
+　　　　　　.· ´¸.·*´¨) ¸.·*¨)
+　　　　　　　　
+         (¸.·´ (¸.·'* ♡
 
 ![tumblr_4891270d8bcfecc9a85cee24b4b45f10_3edeed07_1280](https://github.com/user-attachments/assets/6a481d1a-c807-4e44-b6cc-bafcee6fc66b)
 ![tumblr_67710aad41dda36749f75ae6a2521187_a6f69804_1280](https://github.com/user-attachments/assets/bdcefab7-8f6e-454e-aa0e-51aee8396064)
