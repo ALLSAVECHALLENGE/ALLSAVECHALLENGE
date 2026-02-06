@@ -36,7 +36,7 @@
 
 ![6d1b6216](https://github.com/user-attachments/assets/a920184d-8344-4b1d-918d-29ab19638cd8)
 
-![tumblr_9bc87a5324b98809883aaee7f2982937_deb62212_75](https://github.com/user-attachments/assets/24c6ee6e-848c-4c00-942a-5cb2cf56ca34) IIIM TURNING 15 ON JULY! IM ALSO AN ENFP SX7W6 792!!! EXTENDED TYPOLOGY IISS..!! ENFP SX7W6 792 EN(F) ELFV SCUAI IEE SANG[DOM] CHAOTIC GOOD!!!
+![tumblr_9bc87a5324b98809883aaee7f2982937_deb62212_75](https://github.com/user-attachments/assets/24c6ee6e-848c-4c00-942a-5cb2cf56ca34) IIIM TURNING 16 ON JULY! IM ALSO AN ENFP SX7W6 792!!! EXTENDED TYPOLOGY IISS..!! ENFP SX7W6 792 EN(F) ELFV SCUAI IEE SANG[DOM] CHAOTIC GOOD!!!
 
 ![2bcdcde9](https://github.com/user-attachments/assets/03810c32-a3e5-4b8f-b3e6-44e72c93933d)
 
